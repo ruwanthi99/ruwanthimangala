@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ruwanthimangala
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning about programming languages 
+- 💞️ I’m currently studying at saegis campus
+- 📫 Ask Me About Anything here! I am happy to help.
